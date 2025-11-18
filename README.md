@@ -1,4 +1,4 @@
-## Hi there imma pinkkk!!👋
+## Hi there imma pinkkk!! 👋₍ᐢ.ˬ.⑅ᐢ₎
 
 <!--
 **pinkiuhrd/pinkiuhrd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
